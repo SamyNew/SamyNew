@@ -8,3 +8,10 @@
 [![Spotify](https://img.shields.io/badge/Spotify-1ED760?style=flat-square&logo=Spotify&logoColor=white)](https://open.spotify.com/user/sn6nta7afo1jsudajncmxwrgt?si=U6zbF6QUToWatPaoIHQeKg)
 
 [![Medium](https://img.shields.io/badge/Medium-12100E?style=flat-square&logo=Medium&logoColor=white)](https://medium.com/@samynandes/about)
+
+
+
+
+
+Espero que nenhum chefe meu ache isso KKKKKKKKKKKKKKK me racho
+
